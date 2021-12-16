@@ -1,3 +1,3 @@
-- Hi, I’m @DRS-Schueler
+- Hi, I’m @David-Roentgen-Schule-Schueler. But you can call me DRS-Schueler :)
 - I’m interested in human activities like breathing and other.
 - I’m currently learning how to Human.
